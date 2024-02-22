@@ -1,3 +1,3 @@
 # Page
 
-test  ddsafsa
+how to get dir
